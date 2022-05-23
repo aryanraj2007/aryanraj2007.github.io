@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+My name is Aryan, and I'm a teenage living in texas.
 
-Maybe say a some things about yourself.
+I blog about anything that interests me in the moment.
 
-Or maybe what you plan to blog about.
+Thank's For Checking It Out!!
